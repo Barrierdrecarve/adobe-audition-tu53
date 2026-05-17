@@ -1,4 +1,4 @@
-# 
+# Personalizado Vegas Pro para PC addons es el mejor Vegas Pro para PC addons con animación de títulos y gestión de plugins. Seguro, confiable y optimizado para el máximo
 
 
 
